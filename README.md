@@ -1,5 +1,5 @@
-This is a key code (activation codes) cracker
-👍
+.
+
 
 <!---
 keys-cracker/keys-cracker is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
